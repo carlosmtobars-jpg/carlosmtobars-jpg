@@ -20,7 +20,7 @@ Me interesa optimizar procesos, construir insights y comunicar hallazgos de mane
 ---
 
 ### 📫 Contacto
-- **Email:** tu-email-aquí@gmail.com
+- **Email:** carlosmtobars@gmail.com
 - **LinkedIn:** [linkedin.com/in/carlos-mario-tobar-salazar-82804b239](https://www.linkedin.com/in/carlos-mario-tobar-salazar-82804b239/)
 
 
